@@ -1,1 +1,1 @@
-Just a student learning new things!
+In my most recent job interviews, the question of why I am back in school always comes up. Most companies ask for go-getters, but seem to be real nervous about people continuing their education. This blog is for a new semester to show off my growing skillset!
